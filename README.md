@@ -1,0 +1,4 @@
+- 💞️ Hi, I’m @lohaynevictoria
+- 👀 tenho 16 anos
+- 🌱 sou estudante
+- 😄
